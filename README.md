@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Num1x
+- 👀 I’m interested in Robotics and Coding.
+- 🌱 I’m currently learning more python.
+- 💞️ I’m looking to collaborate on any project to be honest.
+- 📫 How to reach me collinkschaefer@gmail.com | 512-757-6942
